@@ -10,7 +10,7 @@ https://youtu.be/ZMleK7eq0CY
 
 
 - 🌱 I’m currently learning web3
-- 💞️ I’m looking to collaborate on open source development for Android
+- 💞️ I’m looking to collaborate on Blockchain development
 - 📫 How to reach me : LinkedIn
 
 <!---
