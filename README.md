@@ -8,9 +8,13 @@ https://youtu.be/Ps4aVpIESkc
 
 https://youtu.be/ZMleK7eq0CY
 
+Current:
+
 https://youtu.be/0aA_C6tI8tE
 
 https://youtu.be/oomJqGn7jGA
+
+https://youtu.be/_P9YXESg5Es
 
 
 - 🌱 I’m currently learning web3
