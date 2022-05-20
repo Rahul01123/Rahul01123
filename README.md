@@ -8,6 +8,10 @@ https://youtu.be/Ps4aVpIESkc
 
 https://youtu.be/ZMleK7eq0CY
 
+https://youtu.be/0aA_C6tI8tE
+
+https://youtu.be/oomJqGn7jGA
+
 
 - 🌱 I’m currently learning web3
 - 💞️ I’m looking to collaborate on Blockchain development
