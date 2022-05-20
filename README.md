@@ -1,4 +1,6 @@
-- 👋 Hi, I’m @Rahul01123
+- 👋 Hi, I’m @Rahul01123 : "I inhabit multiple universes, one where my body lives and one where my soul lives" - Count Rochefort. 
+This repo is for my soul. In this universe I live alone with my music and my code, waiting for the one....
+
 - 👀 I’m interested in music, my favourite kind being covers of Hindi Bollywood music.
 YouTube ref:
 
